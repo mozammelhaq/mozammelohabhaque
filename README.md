@@ -1,2 +1,2 @@
 # mozammelohabhaque
-Non-Muslims profit organization
+Non-profit organization
